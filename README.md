@@ -22,8 +22,7 @@
 
 ###
 
-<div align="center">
-  ![image](https://github.com/user-attachments/assets/e668bd94-6a69-43d8-97b8-7e18330e829b)
-</div>
+![image](https://github.com/user-attachments/assets/3ea11fc1-8656-4f9e-bd67-05f974e5061e)
+
 
 ###
